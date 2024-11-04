@@ -6,14 +6,11 @@ instagram report bot, telegram report bot, tiktok report bot, facebook report bo
 (𝙒𝙊𝙍𝙆𝙎 𝙊𝙉 𝘼𝙇𝙇 𝙋𝙇𝘼𝙏𝙁𝙊𝙍𝙈𝙎) 
 
 <p align="center">
-[𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/OGfJn
+[𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/wBZwZ
 </p>
 
-<p align="center"><img src="https://github.com/user-attachments/assets/f516a4f3-a5bf-46c7-bdac-6dc261a2f3c6" /> <br>
-↓ ɢᴇᴛ ɪɴꜱᴛᴀɴᴛ ʀᴇᴠᴇɴɢᴇ ᴏɴ ᴛʜᴇ ᴘᴇᴏᴘʟᴇ ʏᴏᴜ ʜᴀᴛᴇ​ ↓
-
 <p align="center">
-[𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/OGfJn
+[𝗣𝗮𝗶𝗱] Access only via Telegram: https://t.ly/wBZwZ
 </p>
 
 <p align="center">
